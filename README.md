@@ -1,2 +1,2 @@
-Nama : Hilman Wanandi' /n
+Nama : Hilman Wanandi' 
 NIM  : 201810370311262
